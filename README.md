@@ -17,7 +17,7 @@ Mi palicacion es sobre la combinacion de los colores primarios
 
 **Silvia
 
-
+Mi proyecto se basa de notas o mandados a cualquier persona o estudiante
 
 **Julliet
 
